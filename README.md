@@ -1,6 +1,6 @@
+-  Eu sou o Milhor
 -  Olá, sou o Daniel Steinke
 - Eu torço pro Athletico Paranaense
 -  Eu estou aprendendo falar alemão
 -    Estou estudando no Colégio Estadual  do Paraná
 -  Nome completo: Daniel Henrique Steinke do Nascimento
--  Eu sou o Milhor
