@@ -1,6 +1,6 @@
 -  Olá, sou o Daniel Steinke
 -  Nome completo: Daniel Henrique Steinke do Nascimento
 -  Eu estou aprendendo falar alemão
--    estou estudando no Col´gio Estadual  do Paran
 - Eu torço pro Athletico Paranaense
+-    Estou estudando no Colégio Estadual  do Paraná
 -  Eu sou o Milhor
